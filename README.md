@@ -1,2 +1,1 @@
-# Aidil-Wijaya
-E
+# Aidil-Wijaya-Kusuma
